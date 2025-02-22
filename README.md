@@ -13,5 +13,6 @@ https://nma77574.wixsite.com/kue-kering-kacang
 
 https://carousell.app.link/p4YneUrM9Qb
 
-Jualo
+https://www.jualo.com/082214297187-kue-lebaran-cimahi-dengan-harga-terjangkau-beli-kue-kering-lebaran-cimahi-online-kota-cimahi-1790351078
+
 
